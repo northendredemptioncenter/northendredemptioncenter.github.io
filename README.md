@@ -1,3 +1,3 @@
 # northendredemptioncenter.github.io
 
-content goes here.
+Coming Soon
