@@ -1,14 +1,14 @@
 # North End Redemption Center ♻️
 
-Bottle & Can return \
+Bottle & Can return 
 
-Quick and easy cash \
+Quick and easy cash 
 
 ### Hours:
 
 Monday: 9:00am - 5:00am \
 Tuesday: 9:00am - 5:00am \
-Wednesday: 9:00am - 5:00am \ 
+Wednesday: 9:00am - 5:00am \
 Thursday: 9:00am - 5:00am \
 Friday: 9:00am - 5:00am \
 
